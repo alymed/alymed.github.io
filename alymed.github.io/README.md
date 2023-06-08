@@ -1,1 +1,0 @@
-# alymed.github.io
